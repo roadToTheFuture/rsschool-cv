@@ -8,7 +8,7 @@
 
 **Address: Belarus, Minsk**
 
-
+**Email: js.learn.safyan@gmail.com**
 
 **Telegram: @ibot_minsk**
 
