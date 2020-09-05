@@ -1,2 +1,1 @@
-# rsschool-cv
-RS2020Q3
+https://roadToTheFuture.github.io/rsschool-cv
