@@ -1,1 +1,1 @@
-https://roadToTheFuture.github.io/rsschool-cv
+https://roadToTheFuture.github.io/rsschool-cv/cv
