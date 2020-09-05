@@ -8,13 +8,13 @@
 
 **Address: Belarus, Minsk**
 
-**Email: js.learn.safyan@gmail.com**
+**Email: js.learn.safyan@gmail.com **
 
-**Telegram: @ibot_minsk**
+**Telegram: *@ibot_minsk***
 
-**Instagram: @isafyan**
+**Instagram: *@isafyan***
 
-**GitHub: @roadToTheFuture**
+**GitHub: *@roadToTheFuture***
 
 ## Resume
 
